@@ -1,1 +1,1 @@
-# rsschool-cv https://loramisautova.github.io/rsschool-cv/
+# rsschool-cv https://Loramisautova.github.io/rsschool-cv/
